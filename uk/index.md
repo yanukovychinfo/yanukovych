@@ -7,7 +7,7 @@
 
 Ми вважаємо неприпустимим використання міжнародної фінансової системи для підтримання політичного режиму, що силою брутально розганяє мирні демонстрації, влаштовуючи жорстокі побоїща беззахисних людей та кидаючи їх за грати.
 
-На виконання міжнародних стандартів <a target="_blank" lang="en" href="http://www.fatf-gafi.org/topics/fatfrecommendations/documents/internationalstandardsoncombatingmoneylaunderingandthefinancingofterrorismproliferation-thefatfrecommendations.html">ФАТФ</a>, імплементованих в&nbsp;<a target="_blank"  data-lang="en" href="http://eur-lex.europa.eu/LexUriServ/site/en/oj/2006/l_214/l_21420060804en00290034.pdf">Директивах ЄС</a> та <a target="_blank" data-lang="en" href="http://www.justice.gov/archive/ll/highlights.htm">Акті Патріота США</a>, ми просимо:
+На виконання міжнародних стандартів <a target="_blank" lang="en" href="http://www.fatf-gafi.org/topics/fatfrecommendations/documents/internationalstandardsoncombatingmoneylaunderingandthefinancingofterrorismproliferation-thefatfrecommendations.html">ФАТФ</a>, імплементованих в&nbsp;<a target="_blank" lang="en" href="http://eur-lex.europa.eu/LexUriServ/site/en/oj/2006/l_214/l_21420060804en00290034.pdf">Директивах ЄС</a> та <a target="_blank" lang="en" href="http://www.justice.gov/archive/ll/highlights.htm">Акті Патріота США</a>, ми просимо:
 
 1. Правоохоронні органи країн Європи та США негайно <strong>заморозити рахунки</strong>, які відкриті за кордоном Віктором Януковичем, його сином Олександром та компаніями, де члени президентської родини є бенефіціарними власниками.  <strong>Заморозити кореспонденські банківські рахунки</strong>, які дозволяють компаніям Януковича мати доступ до світової фінансової системи.
 
